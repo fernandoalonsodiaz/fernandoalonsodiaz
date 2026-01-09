@@ -1,4 +1,4 @@
-<p align="center">⠀wenn ich nach deinem Körper schiele
+<p align="center">⠀wenn ich nach deinem körper schiele
 <p align="center">  ⠀⠀　⠀╱⠀　⠀⠀
 <p align="center"> denk' ich nur an doktorspiele  .ᐟ
 
