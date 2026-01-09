@@ -1,3 +1,5 @@
-<p align="center">⠀⠀⠀⎯ㅤ⠀“⠀⠀wenn ich nach deinem Körper schiele⠀⠀　⠀╱⠀　⠀⠀denk' ich nur an doktorspiele  .ᐟ
+<p align="center">⠀⠀⠀⎯⠀⠀wenn ich nach deinem Körper schiele⠀⠀　⠀╱⠀　⠀⠀denk' ich nur an doktorspiele  .ᐟ
 
-<img width="736" height="414" alt="1000030904" src="https://github.com/user-attachments/assets/eb851ee4-f6e5-42fb-80f5-6ff2845371e9" />
+
+<img width="736" height="414" alt="1000030905" src="https://github.com/user-attachments/assets/7963b1c9-c8a0-436e-9efd-e228869c38a0" />
+
