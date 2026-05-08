@@ -1,8 +1,9 @@
-<p align="center"><sub>⠀⠀wenn⠀ ich ⠀nach ⠀deinem⠀ körper ⠀schiele</sub>⠀
-<p align="center">  ⠀⠀　⠀𝜗𐑞⠀　⠀⠀
-<p align="center"><sub>denk'⠀ ich⠀ nur⠀ an ⠀doktorspiele .ᐟ</sub> 
+<p align="center"><sub> FA14  ⠀ AKA12 ⠀ DR3 ⠀ JB22 𓏼´ ⋏ `𓏼）
 
 
-<img width="736" height="414" alt="1000030904" src="https://github.com/user-attachments/assets/5e70fdf3-e1d3-40f3-a427-f4add2630b28" />
+
+<p align="center"><img width="736" height="392" alt="1000036329" src="https://github.com/user-attachments/assets/bd411d06-bc56-4549-8482-1ef297e98116" />
 
 
+  
+<p align="center"><sub> cold hearted girl, don't hurt me like this anymore. 
